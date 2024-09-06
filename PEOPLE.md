@@ -1,1 +1,2 @@
 Garrier Duboa
+Kim Kitsuragi
